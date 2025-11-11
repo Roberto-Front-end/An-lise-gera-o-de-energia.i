@@ -1,0 +1,1 @@
+# An-lise-gera-o-de-energia.i
